@@ -16,4 +16,4 @@ JS
 
 Si estas interesado en colaborar con proyectos, oportunidades laborales e iniciativas, contactame.
 
-2023 Alejandra Tzec | AlejandraTC22 | (programa Techolochicas PRO)
+© 2023 Alejandra Tzec | AlejandraTC22 | (programa Techolochicas PRO)
